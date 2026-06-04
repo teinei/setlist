@@ -9,3 +9,6 @@ nessun dorma,
 春天的故事，
 angels we have heard on high,
 季候風by王菲，
+燈火裡的中國，
+all i want for xmas is u,
+高天上流雲，
